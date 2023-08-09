@@ -1,4 +1,4 @@
-"Entre os veios do tecido da realidade e os arcanos do universo, trilho o caminho do desconhecido como o Mago Supremo. Nas dobras do tempo e do espaço, mergulho em busca dos segredos ocultos que sustentam a existência. Manipulador das forças primordiais, eu desafio os limites da compreensão humana, dançando na fronteira entre a ordem e o caos.
+Entre os veios do tecido da realidade e os arcanos do universo, trilho o caminho do desconhecido como o Mago Supremo. Nas dobras do tempo e do espaço, mergulho em busca dos segredos ocultos que sustentam a existência. Manipulador das forças primordiais, eu desafio os limites da compreensão humana, dançando na fronteira entre a ordem e o caos.
 
 Minha jornada é tecida com encantamentos ancestrais e conhecimentos profundos, forjados em bibliotecas arcanas e meditações astrais. Sou o guardião dos reinos invisíveis, o arauto das dimensões além da percepção comum. Meu cajado ergue-se como um farol de luz nas trevas do desconhecido, guiando a humanidade através das tormentas místicas e dos vendavais dimensionais.
 
