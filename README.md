@@ -1,4 +1,4 @@
-Confira o link abaixo para ver a mmágica!
+Confira o link abaixo para ver a mágica!
 <br>https://d0ctor-strange.github.io/Shield/
 
 <p align="center">
