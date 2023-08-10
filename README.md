@@ -1,4 +1,8 @@
-![logo](https://github.com/D0ctor-Strange/D0ctor-Strange/assets/141174431/e12ac9e7-8422-4ab5-a618-e43302c353f7)
+- Check it out here >> https://rededge.is-a.dev/dr-strange-shield/
+
+<p align="center">
+  <img src="logo.png" height="30%" width="30%">
+</p>
 <br>
 Entre os veús do tecido da realidade e os arcanos do universo, trilho o caminho do desconhecido como o Mago Supremo. Nas dobras do tempo e do espaço, mergulho em busca dos segredos ocultos que sustentam a existência. Manipulador das forças primordiais, eu desafio os limites da compreensão humana, dançando na fronteira entre a ordem e o caos.
 
